@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... working remote 
 - 🌱 I’m currently learning ... Python Beginner = https://www.freecodecamp.org/learn/
 - 💞️ I’m looking to collaborate on ... anything! I need and love to learn!
-- 📫 How to reach me ... blackout808bass@gmail.com or Kain#0948
+- 📫 How to reach me ... blackout808bass@gmail.com or Kain#0948 in Discord!
 - (b^_^)b
 
 <!---
